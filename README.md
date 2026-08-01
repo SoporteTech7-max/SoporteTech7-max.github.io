@@ -1,1 +1,0 @@
-# SoporteTech7-max.github.io
